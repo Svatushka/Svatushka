@@ -4,7 +4,7 @@
 
 ### :man_technologist: About me:
 
-I am 18 years old, I live in Russia. Most often I play games like Valorant and Dota 2.
+I am 21 years old, I live in Russia. Most often I play games like Valorant and Dota 2.
 
 ---
 
